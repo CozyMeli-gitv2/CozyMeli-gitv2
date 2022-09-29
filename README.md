@@ -1,9 +1,9 @@
 ╭══• ೋ•✧๑♡๑✧•ೋ •══╮
 
- Welcome to my github!
+   Welcome to my github!
 
- CozyMeli#6602 for
+   CozyMeli#6602 for
 
- inquiries.
+   inquiries.
 
 ╰══• ೋ•✧๑♡๑✧•ೋ •══╯
