@@ -1,9 +1,3 @@
-╭══• ೋ•✧๑♡๑✧•ೋ •══╮
+helloooo :3 
 
-   Welcome to my github!
-
-   CozyMeli#6602 for
-
-   inquiries.
-
-╰══• ೋ•✧๑♡๑✧•ೋ •══╯
+my discord is CozyMeli#6602 if you need to contact me!
