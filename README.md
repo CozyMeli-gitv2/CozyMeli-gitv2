@@ -1,3 +1,2 @@
-helloooo :3 
-
-my discord is CozyMeli#6602 if you need to contact me!
+#Hey there! 👋👋
+There's not much to see here just yet. Maybe check in later?
