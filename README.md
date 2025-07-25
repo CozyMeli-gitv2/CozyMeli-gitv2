@@ -7,6 +7,7 @@ I'm currently working on a project in Python, to be made public soon.
 *Discord*: CozyMeli 
 *Minecraft IGNs*: CozyMeli, CozyyMeli
 *Steam*: CozyMeli
+
 More accounts not listed. If you want to know if I'm on a platform and I know you personally, PM me!
 
 ## My devices:
